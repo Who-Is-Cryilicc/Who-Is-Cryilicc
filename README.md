@@ -1,16 +1,91 @@
-## Hi there 👋
+# Hi there i'm cryilicc aka Abnormal👋
 
-<!--
-**Who-Is-Cryilicc/Who-Is-Cryilicc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- Im currently working on my Gorilla Tag mod menu (Salient) 😱.
+- I'm learning how to not be acoustic, csharp, and c++ (Microsoft Visual Studio 2022 Free).
+- I need help on my menu cause i suck at coding.
+- I'm also a registered sex offende-
+ jk
+-------------------------------------------------------------------------------------------------------------
+## I mainly use csharp cus why not
+##### I love u guys even if u hate me <3 also god bless you all
+im gay btw-
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+uwu senpai~
