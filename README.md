@@ -7,85 +7,11 @@
  jk
 -------------------------------------------------------------------------------------------------------------
 ## I mainly use csharp cus why not
+### Modding is my thing
+#### I Lso create content and im making my own game called Lavish
 ##### I love u guys even if u hate me <3 also god bless you all
-im gay btw-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-uwu senpai~
+###### anyways peace✌
+
+``JUST GET MY MENU AS SOON IT COMES OUT
+PLEASEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE
+I NEED A RAISE IM IN DEBT``
